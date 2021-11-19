@@ -1,0 +1,2 @@
+# uygavazifa
+hamma ko'raversin
